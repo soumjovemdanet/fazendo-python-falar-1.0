@@ -16,3 +16,7 @@ TRX:
 DGB: 
 
 DASH: 
+
+O ato de doar-se significa ajudar o próximo, fazê-lo feliz de alguma forma, por mais simples que seja sua ação. A cada ajuda, um mérito próprio.
+
+Espero que você,dai do outro lado da tela você entedeu de coração🧡
